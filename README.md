@@ -2,7 +2,7 @@
 
                Немного о себе
 
-! [Фото]https://sun9-24.userapi.com/impg/dUht7VbI2oASkrf8wjDxIHylbUmD4Ax9oLjCJg/rGSrzI0PICA.jpg?size=607x1080&quality=95&sign=b340108066ebfcb896b9ecc64f7deccb&type=album
+! [Фото из Вконтакте](https://sun9-24.userapi.com/impg/dUht7VbI2oASkrf8wjDxIHylbUmD4Ax9oLjCJg/rGSrzI0PICA.jpg?size=607x1080&quality=95&sign=b340108066ebfcb896b9ecc64f7deccb&type=album)
 
 Мне 30 лет, я имею высшее образование по специальности **Инженер** в сфере городское строительство и хозяйство. Опыт работы в газовой сфере 7 лет.
 
